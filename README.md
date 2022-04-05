@@ -2,4 +2,4 @@
 �
 �
 
-Hanya Soal Bagian Pertaman saja
+Hanya Soal Bagian 1 saja
